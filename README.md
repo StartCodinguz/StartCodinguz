@@ -1,0 +1,3 @@
+- Salom @StartCodinguz GitHub profiliga xush kelibsiz . Ushbu profil t.me/Startcodinguz telegram Kanalining rasmiy profili hisoblanadi 
+- Bu yerdan siz t.me/Startcodinguz kanalidagi kodlarni olishingiz mumkin 
+- Yordamimiz tekkan bo'lsa biz bundan xursandmiz 😊
